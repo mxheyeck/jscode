@@ -1,0 +1,1 @@
+fast way to get js code using google bandwidth
